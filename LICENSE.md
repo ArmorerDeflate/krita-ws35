@@ -1,4 +1,4 @@
-# 
+# exclusive Adobe Photoshop para PC herramientas es el mejor Adobe Photoshop para PC herramientas con constructor de formas y edición HDR. Seguro, confiable y optimizado para el
 
 
 
